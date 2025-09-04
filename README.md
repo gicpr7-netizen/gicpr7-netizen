@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Welcome to my profile. (欢迎来到我的个人资料。)
+
+This person support :flag-palestinian-territories:

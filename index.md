@@ -14,4 +14,4 @@ Pls follow me on Github.
 
 ## Other language
 
-- [Chinese](gicpr7-netizen/zh)
+- [Chinese](zh)

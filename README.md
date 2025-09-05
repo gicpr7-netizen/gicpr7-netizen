@@ -15,6 +15,14 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Welcome to my profile. (欢迎来到我的个人资料。)
+Welcome to my profile.
+欢迎来到我的个人资料。
 
-This person support 🇵🇸 🇺🇦.
+I can speak Mandarin, English and Taiwanese.
+我可以说普通话、英语和台语。
+
+Free Palestine!
+解放巴勒斯坦！
+
+Pls follow!
+求关注！

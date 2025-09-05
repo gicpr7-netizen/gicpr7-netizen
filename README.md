@@ -17,9 +17,3 @@ Here are some ideas to get you started:
 
 Welcome to my profile.
 欢迎来到我的个人资料。
-
-Free Palestine!
-解放巴勒斯坦！
-
-Pls follow!
-求关注！

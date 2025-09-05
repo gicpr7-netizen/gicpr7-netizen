@@ -18,9 +18,6 @@ Here are some ideas to get you started:
 Welcome to my profile.
 欢迎来到我的个人资料。
 
-I can speak Mandarin, English and Taiwanese.
-我可以说普通话、英语和台语。
-
 Free Palestine!
 解放巴勒斯坦！
 
